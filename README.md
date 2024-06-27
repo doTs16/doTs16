@@ -1,11 +1,9 @@
-##  Beiçudos.com
+##  Este é meu perfil 🧉
 
-- Estudo no CPM
-
-- 🇦🇫
+- Ensino Superior 3ºAno 6ºCPM
   
-- phd em dormi
+- 🇧🇷
 
-- aprendendo ✨programations ✨
+- Aprendendo Python, CSS, HTML, Analise de Dados 
 
-![jsabdcsdlkfhskldf](https://media.tenor.com/_SZFaNzeCHoAAAAM/wink-kisses.gif) ![jsabdcsdlkfhskldf](https://media.tenor.com/mr_RC-5VDE0AAAAM/kiss-lip-kiss.gif) 
+! [skol](https://media1.tenor.com/m/LYJ6TI2Uc8sAAAAC/vikingos.gif) 
