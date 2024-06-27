@@ -6,4 +6,4 @@
 
 - Aprendendo Python, CSS, HTML, Analise de Dados 
 
-! [skol](https://media1.tenor.com/m/LYJ6TI2Uc8sAAAAC/vikingos.gif) 
+! [skol](https://media1.tenor.com/m/LYJ6TI2Uc8sAAAAC/vikingos.gif)  ![pedro pedro pedro](https://media1.tenor.com/m/BZaWjKzYBLQAAAAd/racoon-raccoon.gif)
